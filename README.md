@@ -1,2 +1,2 @@
 # supreme-engine
-Contact at ja7504998@gmail.com and add LinkedIn connect option connect to Francis Diamond on LinkedIn  
+Contact at ja7504998@gmail.com and LinkedIn connect Francis Diamond
